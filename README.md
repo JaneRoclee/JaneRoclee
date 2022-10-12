@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Jane
+- 👀 I’m interested in reading and  I’m crazy about learning some new stuff
+- 🌱 I’m currently learning English speaking
+- 💞️ I’m looking to collaborate on teaching Chinese
+- 📫 How to reach me ,my Wechat:ljmcooler1107
